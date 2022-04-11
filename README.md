@@ -37,6 +37,7 @@ This study is expected to remove the stigma surrounding sex education. That havi
 **Sustainable Development Goal (SDG) of the Project**
 
 The SDG that this project aims to attain is No Poverty and Good Health and Well-Being.
+
 Goal 1: No Poverty – intends to reduce the poverty rates by lessening the number of struggling families made through early pregnancy.
 Goal 3 Good Health and Well-Being – to address the alarming cases of STD’s spreading throughout the country.
 
