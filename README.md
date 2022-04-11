@@ -19,9 +19,13 @@ Taking advantage of youth and enjoying life before responsibilities comes is a g
 **Significance of the proposed project**
 
 Teenagers – this study helps inform them of the risks of being ignorant when it comes to sex where they are not openly taught by their parents about it.
+
 Parents – parents are the models of their children and their guide, with this study, they will learn that it is better to teach them as early as possible about the responsibilities that comes with sex.
+
 Students – this study can be utilized by the students as a reference for their own studies and as a way of learning the importance of knowledge.
+
 Government – this study discusses how early teenage pregnancy can affect the economy therefore leading to a serious and strict implementation of sex education.
+
 Community – this study can help inform the community about the situation of surrounding teenage pregnancy. It can also help in the success of the implementation if the stigma of teenage sex can be removed.
 
 **Methods**
