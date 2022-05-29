@@ -42,7 +42,23 @@ This study is expected to remove the stigma surrounding sex education. That havi
 
 The SDG that this project aims to attain is No Poverty and Good Health and Well-Being.
 
-Goal 1: No Poverty – intends to reduce the poverty rates by lessening the number of struggling families made through early pregnancy.
+Goal 1: No Poverty – intends to reduce the poverty rates by lessening the number of struggling families made through early pregnancy and overpopulation.
+![E_SDG-goals_Goal-01](https://user-images.githubusercontent.com/103016305/170857487-9c38a6f6-a283-42fd-8fdf-7b1927e7bb8e.png)
 
-Goal 3: Good Health and Well-Being – to address the alarming cases of STD’s spreading throughout the country.
+
+Goal 3: Good Health and Well-Being – to address the cases of teenage pregnancy and STDs throughout the country.
+![E_SDG-goals_icons-individual-rgb-03](https://user-images.githubusercontent.com/103016305/170857494-42781b83-ed2d-44f8-a39a-949b7425013b.png)
+
+**TEAM vitalIT // 3205**
+
+1. Fanoga, Lenard
+ 
+2. Garcia, Carlo
+ 
+3. Malijan, Justine Miles
+ 
+4. Mancilla, Neal Andrus
+ 
+5. Rosales, Neil Denver
+
 
