@@ -10,7 +10,7 @@ According to an article by the Dissertations expert (n,d), the education of Sout
 
 **Problem Statement**
 
-The main objective of this study is to analyze the teenage pregnancy rate of 2013. It aims to determine the following:
+The main objective of this study is to analyze the teenage pregnancy rate of 2012-2019. It aims to determine the following:
 
 1. Relationship between teenage pregnancy and their education.
 2. Education level in which sex education should begin.
