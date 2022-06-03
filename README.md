@@ -12,9 +12,10 @@ According to an article by the Dissertations expert (n,d), the education of Sout
 
 The main objective of this study is to analyze the teenage pregnancy rate of 2012-2019. It aims to determine the following:
 
-1. Relationship between teenage pregnancy and their education.
-2. Education level in which sex education should begin.
-Taking advantage of youth and enjoying life before responsibilities comes is a great way to live, but doing so without care is reckless and alarming since the effects can be life changing. Teenage pregnancy and STD’s, an effect of recklessness, is a huge problem in the Philippines due to the lacking sex education. Not only will sex education improve the lives of the future teenagers, but also the economy of the Philippines.
+1. The number of teenage pregnacies from 2012-2019.
+2. Their knowledge about the use of contraceptives.
+3. Usage rate of contraceptives.
+4. Education level in which sex education should begin.
 
 **Significance of the proposed project**
 
